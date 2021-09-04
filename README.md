@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Subhangi Debnath (SubhangiD)
+- 👀 I’m interested in Recruitment
+- 🌱 I’m currently teaching - Recruitment Process
+- 💞️ I’m looking to collaborate with HR Recruiters
+- 📫 How to reach me: subhangi.d@jobsacademy.co.in/ (+91) 62910 31151
